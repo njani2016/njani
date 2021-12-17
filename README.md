@@ -1,2 +1,0 @@
-# njani
-kanale shqip
